@@ -68,7 +68,7 @@ I am an aspiring AI and Machine Learning Engineer interested in developing intel
 ## 🌐 Connect With Me
 
 - GitHub: https://github.com/Msuren48106
-- LinkedIn: Coming Soon!
+- LinkedIn: https://www.linkedin.com/in/m-suren-a390513a9/
 
 ---
 
